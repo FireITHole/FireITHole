@@ -1,1 +1,1 @@
-A random musician who also codes on the weekends
+A random musician who also codes in the weekends
